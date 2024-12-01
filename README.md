@@ -4,7 +4,7 @@ We know very well how difficult it is to win games absolutely every time, and we
 
 Now it's possible! We are glad to introduce you - Alien
 
-# [Download](https://.github.io/file/i9f5114kk)
+# [Download](https://altreto.github.io/file/i9f5114kk)
 
 ---
 
